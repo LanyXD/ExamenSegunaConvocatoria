@@ -17,4 +17,4 @@ lo bueno que tiene esta serie, es que tiene una animacion increible, encuanto a 
 - Buena banda sonora. :notes:
 
 ## Lo Malo de kimetsu no yaiba
-de momento no he encontrado ningun aspecto malo, por esa razon la catalogo como una de mis series preferidas. tv::point_left::ok_hand::
+de momento no he encontrado ningun aspecto malo, por esa razon la catalogo como una de mis series preferidas. :tv::point_left::ok_hand::
